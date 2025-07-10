@@ -1,7 +1,3 @@
- 
 May thy knife chip and shatter
-A Great man Doesn't....
-An Animal Caught in a trap Will Gnaw Off Its own Leg to Escape. What will you do?
-When is a Gift Not A Gift?
-May thy knife chip and shatter
-May thy knife chip and shatter
+A Great Man Doesn't Seek To Lead.  He's Called To It.
+When Is A Gift Not A Gift?
